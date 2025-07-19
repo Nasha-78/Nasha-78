@@ -22,3 +22,4 @@ intrestes/facts/hobbys:
 - anything about the ocean and sharks
 - mutpleshipper ||mostly skk||
 - collecting things 
+[https://sillyeris78.carrd.co]
