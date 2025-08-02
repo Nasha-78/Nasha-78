@@ -4,7 +4,7 @@ sweetness sweetness i was only joking when i said that i liked you.
 -+
 𝐇𝐞𝐥𝐥𝐨 𝐦𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐄𝐫𝐢𝐬 𝐈𝐦 𝐭𝐡𝐞 𝐡𝐨𝐬𝐭 𝐨𝐟 𝐭𝐡𝐞 𝐬𝐲𝐬
 lm mostly afk or offtab so whisper if needed
-
+simply plural acc: Seaofgalaxy78 (friends only can add)
 DNl if you're :
 - younger then 15
 - rude with jokes 
