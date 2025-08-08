@@ -11,12 +11,14 @@ DNl if you're :
 - rude with jokes 
 - taking my alters as RP
 - darkshiper
+- obsessed with hating SKK or any ship
 
 boundaries 
 - don't flirt or do sexual jokes unless close
 - please don't ask personal questions 
 - ask before venting / ranting -negative-
 - don't force me to speak
+  
 
 intrestes/facts/hobbys:
 - drawing
