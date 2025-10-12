@@ -7,11 +7,12 @@ sweetness sweetness i was only joking when i said that i liked you.
 lm mostly afk or offtab so whisper if needed
 
 DNl if you're :
-- younger then 15
-- rude with jokes 
-- taking my alters as RP
-- darkshiper
+- younger then 15(if youre turing 15 is okay to int)
+- rude with jokes even the kys/die jokes
+- taking my alters as RP or RP
+- openly darkshiper
 - obsessed with hating SKK or any ship
+- chuuya or flins self shipper
 
 boundaries 
 - don't flirt or do sexual jokes unless close
