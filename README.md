@@ -10,8 +10,8 @@ DNl if you're :
 - rude with jokes even the kys/die jokes
 - taking my alters as RP
 - openly darkshiper
-- obsessed with hating SKK or any ship
-- chuuya or flins self shipper
+- obsessed with hating any ship
+- self shipper
 
 boundaries 
 - don't flirt or do sexual jokes unless close
