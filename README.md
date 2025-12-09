@@ -11,7 +11,7 @@ DNl if you're :
 - taking my alters as RP
 - openly darkshiper
 - obsessed with hating any ship
-- self shipper
+- chuuya/flins/castorice self shippers
 
 boundaries 
 - don't flirt or do sexual jokes unless close
