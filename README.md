@@ -2,8 +2,8 @@
 ![text](https://64.media.tumblr.com/58b099ff23ee579b996e18fc47f7aea5/8e6a5449d4291b63-53/s2048x3072/a0d17a1cfd3d9f94c60792f81b59ec725563a625.pnj)
 <img width="200" height="250" alt="IMG_9229" src="https://files.catbox.moe/m4knif.png" />
 <img width="150" height="150" alt="IMG_9229" src="https://64.media.tumblr.com/48c680c7d74b63fad22d9918e5042256/d43bd50bb8e72e37-a4/s640x960/8bb813057750c26715013cf665d29ff980fb1e29.pnj" />
-<p align="center">
 ![text](https://64.media.tumblr.com/21a5d3207f22cb5d2f1544c1d3a100e4/8e6a5449d4291b63-76/s2048x3072/9a0aebeea2588b2373af72a68fc4e162d90dab44.pnj)
+<p align="center">
 𝐌𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐧𝐚𝐬𝐡𝐚 𝐚𝐭𝐥𝐚𝐬𝐞𝐬 𝐭𝐡𝐚𝐭 𝐰𝐡𝐚𝐭 𝐰𝐞 𝐠𝐨 𝐰𝐢𝐭𝐡 , 𝐰𝐞 𝐮𝐬𝐞 𝐮𝐬/𝐰𝐞/𝐨𝐮𝐫 𝐦𝐨𝐬𝐭 𝐨𝐟 𝐭𝐡𝐞 𝐭𝐢𝐦𝐞.
 𝐃𝐧𝐢:
 𝐈𝐟 𝐲𝐨𝐮𝐫𝐞 𝐲𝐨𝐮𝐧𝐠𝐞𝐫 𝐭𝐡𝐚𝐧 𝟏𝟓 𝐢𝐟 𝐲𝐨𝐮𝐫𝐞 𝐭𝐮𝐫𝐧𝐢𝐧𝐠 𝟏𝟓 𝐢𝐬 𝐨𝐤𝐬𝐲 𝐭𝐨 𝐢𝐧𝐭
