@@ -19,6 +19,6 @@
 -----
 𝐈 𝐥𝐢𝐤𝐞 𝐝𝐫𝐚𝐰𝐢𝐧𝐠 𝐚𝐧𝐝 𝐝𝐞𝐬𝐢𝐠𝐧𝐢𝐧𝐠 𝐢 𝐚𝐥𝐬𝐨 𝐡𝐚𝐯𝐞 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭 𝐢𝐧 𝐨𝐜𝐞𝐚𝐧 𝐚𝐧𝐝 𝐟𝐥𝐨𝐫𝐢𝐨𝐠𝐫𝐚𝐩𝐡𝐲 
 𝐂+𝐡 𝐚𝐥𝐰𝐚𝐲𝐬 𝐟𝐞𝐞𝐥 𝐜𝐨𝐦𝐟𝐲 𝐭𝐨 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 !
-<img width:"150" height="150" alt="IMG_9229" scr="https://files.catbox.moe/hvs4e1.png" />
+<img width:"150" height="150" alt="IMG_9229" src="https://files.catbox.moe/hvs4e1.png" />
 ![text](https://64.media.tumblr.com/58b099ff23ee579b996e18fc47f7aea5/8e6a5449d4291b63-53/s2048x3072/a0d17a1cfd3d9f94c60792f81b59ec725563a625.pnj)
 ![text](https://64.media.tumblr.com/801a08572c67f2510c1770886aa6ca16/24a1316a9dd0c2cc-ee/s640x960/2d7c50d8c9f7d6787a3f70c614c694eebb7589eb.pnj)
